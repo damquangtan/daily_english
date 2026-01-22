@@ -1,67 +1,88 @@
 # How to talk about emotitions in English
 
-Hello everyone! Welcome back to ...! I am ..., and oh wow, I'm really excited today.
-
-And I'm Lucas! Hi everyone! Seriously, it feels so good to be here with you. Thanks for spending a little time with us today.
-
-And today's topic is a very important one, Lucas
-
-That's right, Mizu. Today we're talking about feelings - emotions - how to describe how you feel in English, clearly and naturally.
-
-Because we feel something every day, right? Happy, tired, excited, bored ...oh, so many feelings.
-
-Speaking of that, Mizu, how are you feeling today? Like, right now.
-
-Hmm, good question. I feel calm...calm, and a little happy. I had a slow morning, coffee, music - oh, it was nice.
-
-Oh wow, that sounds great. I fee relaxed too. Yesterday I went for a long walk, then I cooked dinner at home. Simple, quiet, perfect.
-
-See? Just like that, Lucas. We're already sharing feelings.
-
-Yes! And if this is your first time here, welcome, welcome! Please hit subscribe, tap like, and come learn English with us every day.
-
-Yes, please do! That small click helps us a lot, and it lets us making fun, real-life English lessons.
-
-Exactly. Here on Go English, we practice real English, everyday English - the kind of people actually use when they talk.
-
-Not textbook English, not robot English, haha - real feelings, real stories, real conversations. Yes, Mizu, happy, calm, relaxed - we're doing it already.
-
-Exactly! And that's why today's lesson will feel easy, natural, and very useful for you.
-
-So stay with us, relax, and let's talk about emotions together.
-
-Let's begin with two very basic feelings - simple, common, and very useful. The first one is happy. Lucas, when do you feel happy?
-
-Hmm, I feel happy when my morning starts well. You know - good sleep, warm coffee, no rush. That small moment make me happy, happy.
-
-Oh wow, I love that. For me, I feel happy when I finish something difficult. When I close my laptop and say, "Yes, I did it," haha - that feeling is happy.
-
-Yes! And we can also say glad. I'm glad to be here right now, Mizu. Glad, glad - it feels good to say.
-
-Exactly. And another word is pleased. I'm pleased with today's lesson. Calm, clear, and friendly.
-
-Right. But for everyday talk, happly is the most common word people use. Simple and natural.
-
-Now let's change the feeling. What is the opposite of happy?
-
-That would be sad. I feel when plans change suddenly. You expect something... and then, oh, it's canceled. That can feel sad.
-
-Yes, I understand that. I feel sad when I hear a sad voice from a friend. Even if they don't say much, I can feel it.
-
-Oh Mizu, that's very true. Feelings can travel, right?
-
-They really do. And it's okay to feel sad sometimes. Sad .. sad - it's a normal emotion, ... not a bad one.
-
-Exactly. Feeling sad for a short time is part of being human. And today, we're learning how to talk about it in English, clearly and honestly.
-
-Now let's move to some feelings that are a little stronger, a little more complex.
-
-Not happy feelings, but very real ones. Let's start with upset (buồn, khó chịu, bực bội. sad < upset < angry).
-
-Yes, upset is a word we hear a lot. Mizu, when was the last time you felt upset?
-
-Hmm... I felt upset this morning, actually. I woke up late, spilled my coffee, and mised my bus. (làm đổ cà phê, lỡ xe buýt).
-
-Nothing terrible, but all together - oh - I felt upset, upset.
-
-Oh no, that kind of morning can really shake you (khiến bạn bối rối). So upset is not just sad, right?
+- Hello everyone! Welcome back to ...! I am ..., and oh wow, I'm really excited today.
+- And I'm Lucas! Hi everyone! Seriously, it feels so good to be here with you. Thanks for spending a little time with us today.
+- And today's topic is a very important one, Lucas
+- That's right, Mizu. Today we're talking about feelings - emotions - how to describe how you feel in English, clearly and naturally.
+- Because we feel something every day, right? Happy, tired, excited, bored ...oh, so many feelings.
+- Speaking of that, Mizu, how are you feeling today? Like, right now.
+- Hmm, good question. I feel calm...calm, and a little happy. I had a slow morning, coffee, music - oh, it was nice.
+- Oh wow, that sounds great. I fee relaxed too. Yesterday I went for a long walk, then I cooked dinner at home. Simple, quiet, perfect.
+- See? Just like that, Lucas. We're already sharing feelings.
+- Yes! And if this is your first time here, welcome, welcome! Please hit subscribe, tap like, and come learn English with us every day.
+- Yes, please do! That small click helps us a lot, and it lets us making fun, real-life English lessons.
+- Exactly. Here on Go English, we practice real English, everyday English - the kind of people actually use when they talk.
+- Not textbook English, not robot English, haha - real feelings, real stories, real conversations. Yes, Mizu, happy, calm, relaxed - we're doing it - already.
+- Exactly! And that's why today's lesson will feel easy, natural, and very useful for you.
+- So stay with us, relax, and let's talk about emotions together.
+- Let's begin with two very basic feelings - simple, common, and very useful. The first one is happy. Lucas, when do you feel happy?
+- Hmm, I feel happy when my morning starts well. You know - good sleep, warm coffee, no rush. That small moment make me happy, happy.
+- Oh wow, I love that. For me, I feel happy when I finish something difficult. When I close my laptop and say, "Yes, I did it," haha - that feeling - is happy.
+- Yes! And we can also say glad. I'm glad to be here right now, Mizu. Glad, glad - it feels good to say.
+- Exactly. And another word is pleased. I'm pleased with today's lesson. Calm, clear, and friendly.
+- Right. But for everyday talk, happly is the most common word people use. Simple and natural.
+- Now let's change the feeling. What is the opposite of happy?
+- That would be sad. I feel when plans change suddenly. You expect something... and then, oh, it's canceled. That can feel sad.
+- Yes, I understand that. I feel sad when I hear a sad voice from a friend. Even if they don't say much, I can feel it.
+- Oh Mizu, that's very true. Feelings can travel, right?
+- They really do. And it's okay to feel sad sometimes. Sad .. sad - it's a normal emotion, ... not a bad one.
+- Exactly. Feeling sad for a short time is part of being human. And today, we're learning how to talk about it in English, clearly and honestly.
+- Now let's move to some feelings that are a little stronger, a little more complex.
+- Not happy feelings, but very real ones. Let's start with upset (buồn, khó chịu, bực bội. sad < upset < angry).
+- Yes, upset is a word we hear a lot. Mizu, when was the last time you felt upset?
+- Hmm... I felt upset this morning, actually. I woke up late, spilled my coffee, and mised my bus. (làm đổ cà phê, lỡ xe buýt).
+- Nothing terrible, but all together - oh - I felt upset, upset.
+- Oh no, that kind of morning can really shake you (khiến bạn bối rối). So upset is not just sad, right?
+- Exactly. Upset is like a mix - a little sad, a little angry, and a little stressed.
+- Yes, that makes sense. I feel upset when someone misunderstands me and doesn't listen.
+- Oh Lucas, that feeling is so real. And if that feeling grows, it can turn into angry.
+- Oof, angry. I don't enjoy that feeling at all. Angry ... angry - it's strong.
+- Same here. I feel angry when something feels unfair. Like when you try your best, but things still go wrong.
+- Yes, Mizu. And sometimes anger comes from small things too. For me, it't technology.
+- When nothing works, and time is running out - oh - I get angry fast.
+- Haha, yes! And that brings us to another great word - frustrated (bực bội, chán nản hoặc khó chịu vì đã không đạt được điều mình muốn dù đã cố - gắng).
+- Frustrated is perfect for that feeling. You want to fix the problem, you try again and again ... but nothing changes.
+- Exactly. I feel frustrated when I read instructions and still don't understand. I read slowly, I read again .. and still, huh?
+- Oh wow, I know that feeling so well, Mizu. You're not angry at a person - you're tired of the situation. That's frushtrated.
+- Yes. And then there's a smaller feeling - annoyed (bực mình, khó chịu nhẹ, nhưng chưa đến mức tức giận. Annoyed < Frustrated < Angry).
+- Annoyed is like a little itch, right? Not big anger (danh từ: sự tức giận. Annoyed → Frustrated → Anger).
+- Exactly. I feel annoyed when a phone keeps buzzing again, again, again. Not angry... just annoyed, annoyed.
+- Haha, yes! Or when someone repeats the same sound over and over. Small thing, small feeling.
+- And that's the key, everyone. These feelings are different in size and strength.
+- Upset, angry, frustrated, annoyed - different words, different moments, but all very useful in real English conversations.
+- After talking about upset, angry, frustrated, and annoyed, let's move to another group of feelings.
+- These ones live a little more in our mind and body.
+- Yes, Mizu. These are the feelings that make your heart beat faster. Let's start with scared.
+- Oh wow... scared is a strong one for me. I feel scared when I hear a strange noise at night.
+- My room is quiet, the light is off, and suddenly - a sound. Scared, scared.
+- Haha, yes, that moment when you stop breathing for a second. You can also say afraid.
+- Right. Afraid is very similar to scared. I'm afraid of deep water. I can swim, but deep water still makes me afraid.
+- For me, I'm afraid of speaking in front of a big group. My hands get cold, my voice changes a little.
+- And that feeling connects to another word - nervous.
+- Exactly. Nervous is not big fear. It's that shaky (run rẫy, bồn chồn) feeling before something important.
+- Yes. I feel nervous before starting something new. Even when I know it will be okay, my stomach(dạ dày) says, "Oh... wait."
+- Haha, I love that. And nervous often comes with thinking too much, right?
+- Yes, and that thinking can turn into worried.
+- Exactly, Lucas. I felt worried when I sent an important message and didn't get a reply. I kept checking my phone. Worried, worried.
+- Oh wow, I know that feeling. That's so stressful.
+- So let's connect these feelings. Scared and afraid are about fear.
+- Nervous is about the moment before action. And worried is when your mind stays busy.
+- Beautifully said, Mizu. Diffent words, diffent situation, but all very real - and very useful in everyday English.
+- After all those heavy feelings - scared, nervous, worried - let's breathe a little and move back to something brighter.
+- Let's talk about positive feelings again.
+- Oh yes, thank you, Lucas. Let's start with one of my favorites - excited.
+- Haha, I knew you would say that. So, Mizu, what makes you feel excited these days?
+- I feel excited when I have something to look forward to. Like planning a vacation, or even a fun weekend vacation.
+- My heart feels light, my mind feels fast - excited, excited.
+- Oh wow, I love that feeling too. I felt excited this morning because we're recording together. I woke up early with energy - that's excited.
+- Exactly! Excited is happy energy about the future.
+- But sometimes, that energy doesn't last forever, right? That brings us to another very real feeling - tired.
+- Oh Lucas, tired is part of daily life, haha. I feel tired in the late afternoon. My body slow down, my voice get softer.
+- Yes. Tired can be physical, or mental, or both. After a long meeting, I feel tired even if I don't move much.
+- That's so true. And then there's a stronger word - exhausted.
+- Exhausted is not just tired. It's tired, tired, tired - no energy left (không còn chút năng lượng nào nữa).
+- Exactly. I feel exhausted after a very busy day. I don't want to talk, I don't want to think - I just want to rest.
+- Oh wow, yes. And notice the connection here. You can feel excited first, then tired, and finally exhausted.
+- Yes! Feelings move, they change, just like our day.
+- And learning these words helps you explain your real life clearly, honestly, and naturally in English.
+- Haha, Lucas, we just talked about energy, excitement...and wow, feeling exhausted too!
