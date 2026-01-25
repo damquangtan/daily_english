@@ -86,3 +86,58 @@
 - Yes! Feelings move, they change, just like our day.
 - And learning these words helps you explain your real life clearly, honestly, and naturally in English.
 - Haha, Lucas, we just talked about energy, excitement...and wow, feeling exhausted too!
+- Haha, yeah! My energy goes up and down all the time.
+- Same here! One moment I feel excited, and the next moment...I'm so tired.
+- Exactly! Feelings can change really fast, right?
+- Right! And now, let's talk about some mixed emotions - feelings that change very quickly.
+- Ooh, that sounds interesting!
+- Yeah! Let's start with surprised.
+- Oh, surprise - I like that one already, haha. So, Mizu, when was the last time you felt surprised?
+- I felt surprised yesterday, actually. A friend I hadn't heard from in years suddenly sent me a message.
+- I looked at my phone and said, "Oh wow!" Surprised, surprised.
+- That's a good surprised. And that's important - surprises can be good or bad.
+- Exactly. A good one is a pleasant surprise. A bad one can make your heart jump - like a loud sound behind you.
+- And if the surprise is very big, very strong, we can say shocked.
+- Yes, shocked is powerful. Your brain stops for a second.
+- Okay, now let's move to another feeling - confused.
+- Okay...next one - confused. Haha.
+- Confused? Oh yeah, I know that feeling!
+- Yeah! Confused is when your thoughts feel messy. Like ... everything is mixed up in your head.
+- Messy thoughts - oh, totally!
+- I feel confused when I open a new app and I don't know where to click.
+- Haha, same here!
+- I just stare at the screen... uh... and think, "What do I do?"
+- Haha, yeah, just staring!
+- Confused, confused.
+- Haha, yes! I feel confused when someone explains something too fast. I hear the words, but my brain says, "Wait... what?"
+- And sometimes confusion can lead to another feeling - lonely.
+- Yes. Lonely is a quiet feeling. You can be surrounded by people and still feel lonely inside.
+- That's true, Lucas. I sometimes feel lonely when everyone is busy, and I just want to talk.
+- Yeah, I get that. That's why connection is so important. And connection leads us to a warmer feeling - hopeful.
+- Hopeful is beautiful. It means you believe something good is coming. Even if today is hard, your heart says, "Tomorrow can be better."
+- I love that, Mizu. I feel hopeful when I see progress, even small progress.
+- And when progress happens, we often feel proud.
+- Yes. Proud is warm and strong. I feel proud when I finish something I almost gave up on.
+- Oh wow, me too. I feel proud of our listeners when they keep learning, even when English feels difficult.
+- Now... let's talk about a feeling that makes us laugh later - embarrassed (xấu hổ, ngượng ngùng).
+- Haha, yes. Embarrassed is uncomfortable, but very human.
+- I feel embarrassed when I wave at someone who isn't actually waving at me. My face gets hot - embarrassed, embarrassed.
+- Oh no, that happened to me too! I wanted to disappear, haha.
+- And finally, let's end with a calm one - bored.
+- Bored is when time feels slow. Your body is fine, but your mind says, "There's nothing to do."
+- Yes. Bored is quiet, empty, not excited at all.
+- And look at all these feelings - surprised, confused, lonely, hopeful, proud, embarrassed, bored.
+- Different moments, different emotions, all connected - just like real life, and just like real English.
+- Okay...Lucas, can I ask you something? Haha.
+- Uh-oh... that sounds serious. Haha. What is it?
+- Have you ever looked at someone and thought, "Hmm...I want that"?
+- Haha, oh yes! Like, "Why do they have it?"
+- Right? And you're smiling...but inside you're like "Hmmmmmm...."
+- Haha, yeah! That little feeling.
+- That feeling is called jealous.
+- Jealous - oh yeah, I know that one.
+- How about you? Have you ever felt jealous of someone?
+- Ah, jealous. That's a tricky one.
+- Yes. Jealous is when you compare yourself to others. Like when you see someone doing something you wish you could do.
+- You smile...but inside, you feel jealous.
+- That's very honest, Mizu. And it's normal sometimes. But we can change that feeling into something healthier - impressed.
